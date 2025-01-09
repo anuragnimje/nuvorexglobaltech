@@ -1,0 +1,2 @@
+# nuvorexglobaltech
+Software Compnay
